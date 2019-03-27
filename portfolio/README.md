@@ -1,1 +1,1 @@
-# simranluthra.github.io
+# https://simranluthra.github.io/portfolio/
